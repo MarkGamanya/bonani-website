@@ -1,0 +1,1 @@
+Bonani website assets
